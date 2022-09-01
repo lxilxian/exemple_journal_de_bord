@@ -6,11 +6,11 @@ Exemple:
 ### [Bulle](https://www.onf.ca/interactif/bulle/) 
 L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
 
-### Lien 1 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Rodeo FX](https://www.rodeofx.com/)
+ Ce studio est mon studio de rêve, ils ont fait tout mes films et séries favorites donc leurs travaux m'intéresse énormément.
 
-### Lien 2 
-Expliquer pourquoi vous avez choisi ce lien.
+### [IleSoniq](https://www.ilesoniq.com/fr)
+ Cette été, je suis allé dans ce festival et la mise en scène était juste incroyable que cela soit la structure ou même les effets visuels.
 
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  
